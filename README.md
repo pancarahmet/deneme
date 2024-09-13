@@ -1,1 +1,1 @@
-﻿# deneme projesi oluşturdum aLKSDHHJALJKSDHALSKDŞHASDŞKHASDJLKASJDŞLASKDJLAŞSDKJHASD
+Deneme yüklemes
