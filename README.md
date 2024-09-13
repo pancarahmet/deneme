@@ -1,1 +1,1 @@
-Deneme yüklemesi KOASHJDLKASD
+Deneme yüklemesi
